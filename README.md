@@ -24,5 +24,5 @@ Backend-focused Software Engineering Student with a solid foundation in Computer
 
 ### 📬 Connect With Me
 
-- **Email:** (Thêm email liên hệ của bạn vào đây)
-- **LinkedIn:** (Thêm link LinkedIn của bạn vào đây nếu có)
+- **Email:** thanhninh7e@gmail.com
+- **LinkedIn:** Chưa có hihi!
